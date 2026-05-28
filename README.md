@@ -1,4 +1,1 @@
-
-
-https://github.com/user-attachments/assets/2dbb1a72-bff0-46f8-881a-31e6de41c83a
-
+<img width="1920" height="1920" alt="__hatsune_miku_kagamine_rin_kasane_teto_and_megurine_luka_vocaloid_and_1_more_drawn_by_eminarts503__848ef4de3f653faffcf96fe0411dcba2" src="https://github.com/user-attachments/assets/2cc05da1-8644-407a-8fdc-1ef13b4e562f" />
