@@ -1,1 +1,1 @@
-<img width="1920" height="1920" alt="__hatsune_miku_kagamine_rin_kasane_teto_and_megurine_luka_vocaloid_and_1_more_drawn_by_eminarts503__848ef4de3f653faffcf96fe0411dcba2(2)" src="https://github.com/user-attachments/assets/8e20dd5f-90b2-4891-af2f-dd883aae94c4" />
+<img width="1920" height="1920" alt="__hatsune_miku_kagamine_rin_kasane_teto_and_megurine_luka_vocaloid_and_1_more_drawn_by_eminarts503__848ef4de3f653faffcf96fe0411dcba2(3)" src="https://github.com/user-attachments/assets/67022fbf-d1d6-4a57-8428-91512b6a3f49" />
